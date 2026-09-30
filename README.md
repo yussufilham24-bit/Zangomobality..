@@ -1,2 +1,0 @@
-# Zangomobality..
-Ride
